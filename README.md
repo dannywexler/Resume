@@ -30,5 +30,5 @@
 - MiraCosta Community College (8/2013 - present)
 - University of California Santa Barbara (9/2011 - 6/2012)   majored in Honors Physics
 
-## CERTIFICATES:
+## Certificates:
 - Certified SolidWorks Associate (CSWA)
